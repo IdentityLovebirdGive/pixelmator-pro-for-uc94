@@ -1,4 +1,4 @@
-# 
+# advanced Brushes for Pixelmator Pro for macOS - AI-assisted design and AI upscaling is the best Pixelmator Pro for macOS brush, featuring AI-assisted design and AI upscaling.
 
 
 
